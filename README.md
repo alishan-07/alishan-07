@@ -1,4 +1,4 @@
-- 👀 I’m interested in Proggramming, Web Desgining & Creating, and 3D Animation (uses Blender & After Effect)
+- 👀 I’m interested in Proggramming, Web Desgining & Creating, and 3D Animation (uses Blender)
 - 🌱 I’m currently learning ... nohting, preparing for Board Exam
 - 📫 How to reach me ... just here
 - 😄 Pronouns: ... him/his/he
