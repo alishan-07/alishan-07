@@ -1,0 +1,4 @@
+- 👀 I’m interested in Proggramming, Web Desgining & Creating, and 3D Animation 
+- 🌱 I’m currently learning ... Full Stack Development
+- 📫 How to reach me ... alimetech07@gmail.com
+- 😄 Pronouns: ... him/his/he
